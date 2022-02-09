@@ -1,1 +1,1 @@
-saya sangat bahagia
+saya sangat bahagia dan ingin pergi keluar rumah
